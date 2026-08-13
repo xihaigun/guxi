@@ -1,5 +1,5 @@
 ## 巅峰对决，就在此刻！——揭秘51每日大赛平台，带你开启竞技新世界
-点击进入：[51每日大赛官网]([https://www.dailybeat.cloud](https://www.dailybeat.cloud) )
+## [https://www.dailybeat.cloud](https://www.dailybeat.cloud)
 你是否还在为寻找高质量的赛事资讯而发愁？是否渴望在激烈的竞技中证明自己的实力？今天，我要向广大竞技爱好者重点推荐一个宝藏平台——51每日大赛网站（DailyBeat）。
 
 为什么选择51每日大赛？
